@@ -3,7 +3,7 @@
 **Pablo Nicolás Alonso Gallardo Gallardo** · Duoc UC Online · Semana 9
 
 ## 🎥 Video de la presentación
-👉 **https://youtu.be/TU_LINK_ACA**
+👉**https://youtu.be/OV_TFT9ZoLQ**
  
 ---
 
